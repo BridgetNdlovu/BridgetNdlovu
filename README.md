@@ -20,5 +20,5 @@ I'm Bridget Ndlovu.
 
 Contact
 
-- Email: ndlovubridget@gmail.com
+- Email: ndlovubridget396@gmail.com
   
